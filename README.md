@@ -1,5 +1,7 @@
-## Hi there 👋
+## Hi 👋
 
+- Graphic Designer and Photographer in New York.
+- Graduated from Farmingdale State College in 2019 with a degree in Visual Communications.
 <!--
 **Lulu-no-lemon/Lulu-no-lemon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
